@@ -1,0 +1,1 @@
+# awesome-open-core-startups-demo-1
